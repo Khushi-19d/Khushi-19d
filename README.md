@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Khushi-19d
 - 👀 I’m interested in innovation
-- 🌱 I’m currently learning computere engineering
+- 🌱 I’m currently studying computer engineering
 - 📫 How to reach me khushidesai1903@gmail.com
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: i love the ocean but can't swim
